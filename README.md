@@ -1,1 +1,0 @@
-# Comparing-Cosmetic-Ingredients
